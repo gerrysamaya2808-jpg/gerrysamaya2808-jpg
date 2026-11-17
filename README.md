@@ -1,4 +1,4 @@
-## Hi there 👋
+## Halloo, saya efrata
 
 <!--
 **gerrysamaya2808-jpg/gerrysamaya2808-jpg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
